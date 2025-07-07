@@ -1,0 +1,1 @@
+# alfredslist-privacy
